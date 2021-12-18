@@ -1,2 +1,2 @@
 # Celestial Bodies
-Celestial bodies in opensea
+We sell celestial bodies in opensea
